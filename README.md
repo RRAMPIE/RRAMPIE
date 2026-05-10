@@ -1,16 +1,29 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**RRAMPIE/RRAMPIE** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# 　═╪　﹒　✦。    ﹕ 
 
-Here are some ideas to get you started:
+<img width="1440" height="50" alt="1000009950" src="https://github.com/user-attachments/assets/22dab03e-d206-4774-9c1c-0b0847102098" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+# 　═╪　﹒　✦。    ﹕ 
+
+---
+<img width="1280" height="1280" alt="1000009949" src="https://github.com/user-attachments/assets/1b1c8e32-3679-4d8d-bc5a-ecdbeb483fe1" />
+
+　　　
+#     ㅤ۫　 ࣮ ꒷　　 ૮꒰ ۫𝄄　C+H comf  . Offtab
+/  *cover comf (friends only)*.
+
+Please sit with me! 
+
+#  ̣̣̣　˙　　༷⑅ִ۫　　osdd-1b sys IWC! 
+
+never assume front! 
+
+**GO SIGN MY STRAWPAGE!!! (๑¯◡¯๑)**
+
+
+# 　═╪　﹒　✦。    ﹕ 
+
+<img width="2048" height="164" alt="1000009960" src="https://github.com/user-attachments/assets/a1fedad2-9b99-4824-9f1a-949b2ab38896" />
+
+# 　═╪　﹒　✦。    ﹕ 
