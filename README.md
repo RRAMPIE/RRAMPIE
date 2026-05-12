@@ -15,7 +15,7 @@
 
 Please sit with me! 
 
-#  ̣̣̣　˙　　༷⑅ִ۫　　osdd-1b sys IWC! 
+# $\color{#9cc7ff}{ ̣̣̣　˙　　༷⑅ִ۫　　osdd-1b sys IWC!}$ 
 
 never assume front! 
 
