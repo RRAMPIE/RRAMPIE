@@ -10,7 +10,7 @@
 <img width="1280" height="1280" alt="1000009949" src="https://github.com/user-attachments/assets/1b1c8e32-3679-4d8d-bc5a-ecdbeb483fe1" />
 
 　　　
-#     ㅤ۫　 ࣮ ꒷　　 ૮꒰ ۫𝄄　C+H comf  . Offtab
+#     $\color{#87de93}{ㅤ۫　 ࣮ ꒷　　 ૮꒰ ۫𝄄　C+H   comf  . Offtab}$
 /  *cover comf (friends only)*.
 
 Please sit with me! 
