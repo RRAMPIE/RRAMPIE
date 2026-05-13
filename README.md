@@ -2,12 +2,12 @@
 
 # 　═╪　﹒　✦。    ﹕ 
 
-<img width="400" height="50" alt="1000009950" src="https://github.com/user-attachments/assets/22dab03e-d206-4774-9c1c-0b0847102098" />
+<img width="1400" height="50" alt="1000009950" src="https://github.com/user-attachments/assets/22dab03e-d206-4774-9c1c-0b0847102098" />
 
 # 　═╪　﹒　✦。    ﹕ 
 
 ---
-<img width="1280" height="1280" alt="1000009949" src="https://github.com/user-attachments/assets/1b1c8e32-3679-4d8d-bc5a-ecdbeb483fe1" />
+<img width="400" height="1280" alt="1000009949" src="https://github.com/user-attachments/assets/1b1c8e32-3679-4d8d-bc5a-ecdbeb483fe1" />
 
 　　　
 #  $\color{#87de93}{ㅤ۫　 ࣮ ꒷　　 ૮꒰ ۫𝄄　C+H   comf  . Offtab}$
