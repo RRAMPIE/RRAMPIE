@@ -2,7 +2,7 @@
 
 # 　═╪　﹒　✦。    ﹕ 
 
-<img width="1440" height="50" alt="1000009950" src="https://github.com/user-attachments/assets/22dab03e-d206-4774-9c1c-0b0847102098" />
+<img width="400" height="50" alt="1000009950" src="https://github.com/user-attachments/assets/22dab03e-d206-4774-9c1c-0b0847102098" />
 
 # 　═╪　﹒　✦。    ﹕ 
 
