@@ -1,29 +1,8 @@
-<div align="center">
 
-# 　═╪　﹒　✦。    ﹕ 
-
-<img width="1400" height="50" alt="1000009950" src="https://github.com/user-attachments/assets/22dab03e-d206-4774-9c1c-0b0847102098" />
-
-# 　═╪　﹒　✦。    ﹕ 
-
----
-<img width="1400" height="1280" alt="1000009949" src="https://github.com/user-attachments/assets/1b1c8e32-3679-4d8d-bc5a-ecdbeb483fe1" />
-
-　　　
-#  $\color{#87de93}{ㅤ۫　 ࣮ ꒷　　 ૮꒰ ۫𝄄　C+H   comf  . Offtab}$
-/  *cover comf (friends only)*.
-
-Please sit with me! 
-
-# $\color{#9cc7ff}{ ̣̣̣　༷⑅ִ۫　　osdd-1b.sys : IWC!}$ 
-
-never assume front! 
-
-**GO SIGN MY STRAWPAGE!!! (๑¯◡¯๑)**
+<img width="2048" height="2048" alt="1000083095" src="https://github.com/user-attachments/assets/5148601a-d62f-4984-853c-43b154c484f7" />
 
 
-# 　═╪　﹒　✦。    ﹕ 
+ <div align="center"> ꒰  𓏼 ͜͜  ✚     ͡  𓏴 ֪      ୧     osdd-1b sys! 
 
-<img width="2048" height="164" alt="1000009960" src="https://github.com/user-attachments/assets/a1fedad2-9b99-4824-9f1a-949b2ab38896" />
-
-# 　═╪　﹒　✦。    ﹕ 
+ c+h welcome  ♫     ͜◞      offtab a lot    𓎟𓎟                     
+ ︶˚     please   sign   straw   ! 
